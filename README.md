@@ -1,4 +1,4 @@
-**[tyr.im](https://tyr.im)**
+**[kyokuto.me](https://kyokuto.me)**
 
 Personal website.
 
